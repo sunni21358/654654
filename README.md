@@ -43,4 +43,4 @@
 立即观看，尽享高清资源
 无论您是想看最新的日本AV影片，还是想观看经典作品，我们都提供了最丰富的资源库和高清无修正版本。没有注册、没有复杂步骤，点击即可观看，您可以随时随地享受最极致的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/654654 ）</span>
